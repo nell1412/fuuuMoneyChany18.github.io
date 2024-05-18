@@ -1,0 +1,1 @@
+# fuuuMoneyChany18.github.io
